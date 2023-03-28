@@ -22,12 +22,5 @@
 
 **:e-mail: [邮件客服（分钟级回复）](mailto:letsvpn@rbox.me)**
 - - - -
-#### 关注社交媒体（请在翻墙网络下打开）
-**:couple: [Facebook](https://lets-contact.onelink.me/0dzS/x5x4mc59)** 
 
-**:camera: [Instagram](https://lets-contact.onelink.me/0dzS/96bhdw1y)**
-
-**:bird: [Twitter](https://lets-contact.onelink.me/0dzS/50o50pw1)** 
-
-**:airplane: [Telegram](https://lets-contact.onelink.me/0dzS/v56y8i6i)**
 ###
