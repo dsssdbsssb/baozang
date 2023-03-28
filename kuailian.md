@@ -16,11 +16,5 @@
 
 **:globe_with_meridians: [访问官方网站](https://lets-contact.onelink.me/0dzS/kf8su4wr)** 
 - - - -
-#### 联系真人客服（请在浏览器中打开）
-
-**:speech_balloon: [在线客服直达（分钟级回复）](https://lets-contact.onelink.me/0dzS/9tj7vfv1)**
-
-**:e-mail: [邮件客服（分钟级回复）](mailto:letsvpn@rbox.me)**
-- - - -
 
 ###
