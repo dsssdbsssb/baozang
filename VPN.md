@@ -1,7 +1,7 @@
 
 # 免费VPV #
-## 快连 #
-## 注册使用我的邀请码可以获得72小时免费时长： 186470748  #
+## 工具/原料 #
+## 外区apple id + OneClick + ShadowShare #
 - - - -
 #### 各平台安装包下载（请在浏览器中打开）
 **:arrow_double_down: [iOS 大陆用户下载教程](https://lets-contact.onelink.me/0dzS/3my1vynb)** 
