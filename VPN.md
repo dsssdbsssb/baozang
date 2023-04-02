@@ -3,7 +3,7 @@
 ## 工具/原料：外区apple id + OneClick + ShadowShare #
 - - - -
 #### 教程内容
-![img](https://raw.githubusercontent.com/Hwj1220/wangyi_reading/master/assets/readmeImage/reading.gif) 
+![img]([https://raw.githubusercontent.com/Hwj1220/wangyi_reading/master/assets/readmeImage/reading.gif](https://github.com/dsssdbsssb/baozang/blob/main/%E6%95%99%E7%A8%8B%200.png)) 
 - - - -
 ###
 
